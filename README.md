@@ -13,7 +13,7 @@
   <img src="https://telegra.ph/file/d040d6fbf5919acbbe92c.jpg">
 </p>
 
-### Found Me On Telegram [@vian.ofc__](https://t.me/vianjg_03)
+### Found Me On Telegram [@vianofc_](https://t.me/@rumputlaut_f)
 
 
 
